@@ -25,4 +25,8 @@
 
 ### Решение 2
 
+![image](https://github.com/user-attachments/assets/0f0196e5-6d8a-45cd-885c-9a76a6c0ad74)
+![image](https://github.com/user-attachments/assets/0d532a6f-473a-47bc-9534-fd63fa6d08bb)
+![image](https://github.com/user-attachments/assets/dcd5787f-7776-4a3c-b187-d075d8ae4916)
+![image](https://github.com/user-attachments/assets/1e19aca3-1acb-495c-852d-00b4302c371b)
 
